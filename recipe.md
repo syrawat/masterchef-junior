@@ -1,3 +1,3 @@
-Preheat oven to 375°. Separate crescent roll dough into 8 triangles and place on an ungreased 12-in. round pizza pan with points toward center. Press over the bottom and up the sides to form a crust; seal perforations. Set aside.
-In a large nonstick skillet, cook sausage over medium heat until no longer pink, 5-7 minutes, breaking up sausage into crumbles. Drain and transfer to pizza crust. Wipe out skillet. In a bowl, beat eggs, milk, salt and pepper; pour into same skillet. Cook and stir over medium heat until almost set; spoon over sausage.
-Sprinkle pizza with hash browns, cheddar cheese and Parmesan. Bake at 375° until crust is golden, 25-30 minutes.
+| Preheat oven to 375°. Separate crescent roll dough into 8 triangles and place on an ungreased 12-in. round pizza pan with points toward center. Press over the bottom and up the sides to form a crust; seal perforations. Set aside. |
+In a large nonstick skillet, cook sausage over medium heat until no longer pink, 5-7 minutes, breaking up sausage into crumbles. Drain and transfer to pizza crust. Wipe out skillet. In a bowl, beat eggs, milk, salt and pepper; pour into same skillet. Cook and stir over medium heat until almost set; spoon over sausage. |
+Sprinkle pizza with hash browns, cheddar cheese and Parmesan. Bake at 375° until crust is golden, 25-30 minutes. |

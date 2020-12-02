@@ -1,1 +1,1 @@
-my recipe is about pizza you can eat it anytime
+This is an easy pizza recipe. Make it anytime and enjoy the delicious pizza!
